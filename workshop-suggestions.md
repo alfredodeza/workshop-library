@@ -1,1 +1,1 @@
-## PR your ideas on great workshop topics here!
+## PR your ideas on great workshop topics here
